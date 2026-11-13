@@ -1,1 +1,1 @@
-# hiii, its me agaaain this time i won the 3rd place, andd as usual use this as wisely as possible, i won this on May 2026 ig, soo thats it, hm to my teammate, and thank uuuuu:\
+# hiii, its me agaaain this time i won the 3rd place, andd as usual use this as wisely as possible, im sorry i didnt have the files for the scripts cuz its in my old laptop and i cannot accesss it anymore but u can look into my writeups thoo, anw i won this on May 2026 ig, soo thats it, hm to my teammate, and thank uuuuu:\
